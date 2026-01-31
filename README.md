@@ -1,2 +1,2 @@
 # Emoji mockups
-The emoji mockups by other users 
+The emoji mockups is outdated
